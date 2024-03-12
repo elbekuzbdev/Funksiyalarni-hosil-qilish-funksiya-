@@ -1,0 +1,1 @@
+# Funksiyalarni-hosil-qilish-funksiya-
